@@ -17,4 +17,4 @@
 | Академическое письмо              | История музыки                           |    
 | Ключевые тексты русской литературы| Музыкальная литература                   |
 # Мои личные фотографии можно увидеть, если пройти по ссылке ниже
-[Ссылка на Instagram](https://www.google.ru/search?q=instagram&oq=instagram&aqs=chrome..69i57j0l5.7947j0j4&sourceid=chrome&ie=UTF-8)
+[Ссылка на Instagram](https://www.instagram.com/arina.gil/?hl=ru)
